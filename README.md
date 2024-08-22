@@ -1,4 +1,4 @@
-## OII como vai? 👋
+## Oii como vai? 👋
 Boas vindas ao meu perfil 💘
 
 Meu nome é Mandy
